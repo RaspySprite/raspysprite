@@ -19,8 +19,9 @@ read  carrd  4  more  info  .ᐟ ₊˚⊹ ᰔ**
 
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 ### <div align="center">  Feel free to interact! I usually don'r mind!
- **you can, sit by me or cuddle, up to you! if you make me uncomfortable or
- anything like that i will most likely block!**<sub>
+ **you can, sit by me or cuddle, up to you! if you make me uncomfortable**
+
+**or anything like that i will most likely block!**
 
 
 
