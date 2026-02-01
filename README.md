@@ -1,8 +1,8 @@
 <p align="center">
- <img src="https://github.com/user-attachments/assets/d29551a2-479e-4cca-a622-7bfd146ff112" width="500" height="200">
+ <img src="https://github.com/user-attachments/assets/d29551a2-479e-4cca-a622-7bfd146ff112" width="400" height="200">
  
 <p align="center">
-<img src="https://github.com/user-attachments/assets/cb6708ed-770b-4e0f-8419-dcf6566a340a" width="500" height="400">
+<img src="https://github.com/user-attachments/assets/cb6708ed-770b-4e0f-8419-dcf6566a340a" width="400" height="400">
 
 <div align="center"> 
 
@@ -27,4 +27,4 @@ read  carrd  4  more  info  .ᐟ ₊˚⊹ ᰔ**
 
  ![Image](https://github.com/user-attachments/assets/b459995c-4d37-44eb-b61d-50cf2f50ccfe) ![Image](https://github.com/user-attachments/assets/fd179f28-332c-4d5e-b571-7d80fa3f2344) ![Image](https://github.com/user-attachments/assets/89fcbd44-e0d5-44d0-8013-d19dbe01d3d3)
 
-<img src="https://github.com/user-attachments/assets/70c25fec-d370-46bc-88fc-9ed51c8dd888" width="500" height="200">
+<img src="https://github.com/user-attachments/assets/70c25fec-d370-46bc-88fc-9ed51c8dd888" width="400" height="200">
