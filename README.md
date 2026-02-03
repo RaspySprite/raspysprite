@@ -1,17 +1,26 @@
 <p align="center">
-
-<img src="https://github.com/user-attachments/assets/5b45cf45-b6b8-4af1-b817-b854961d549a" width="400" height="400">
-<p align="center">
-<img src="https://github.com/user-attachments/assets/cb6708ed-770b-4e0f-8419-dcf6566a340a" width="400" height="400">
-
-<div align="center"> 
-
-![Image](https://github.com/user-attachments/assets/59409f00-2bf1-4a05-952c-0384aa08164b)  ![Image](https://github.com/user-attachments/assets/e5f986fc-e40f-4701-9a2a-db2aaa100c88) ![Image](https://github.com/user-attachments/assets/1b34b17f-4fe3-4822-af32-06da1179fc87)  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ea079741-29f8-4651-8826-aee36b80f541" /> 
-<p align="center">
- 𓊆ྀི❤︎𓊇ྀི
- 
- **you can, sit by me or cuddle, up to you! if you make me uncomfortable**
- 
-**or anything like that i will most likely block!**
+<img src="https://github.com/user-attachments/assets/57aad532-e943-4877-b3ba-af1bae734351" width="1000" height="1000%""/>
 </p>
-<img src="https://github.com/user-attachments/assets/924248c0-d36e-4cb3-9f94-cfe96010366c" width="400" height="200">
+<br>
+
+<p align="center">
+
+![Image](https://github.com/user-attachments/assets/cf3213ca-aa61-4d59-8987-11e1f86437a6)
+
+</p>
+
+<img src="https://github.com/user-attachments/assets/d803b4c3-b0c1-4a07-8402-3eb73f45bfe5"  align="left" width="35%"> <p align="center">   ${\textsf{\color{#FBEFEF}Truth is, you should be free to do as you like}}$ <br> <img src="https://github.com/user-attachments/assets/b9d55319-bc7e-46c8-8cab-8112d10df835" height="40" width="240"/>
+<p align="center"> ${\textsf{\color{#FBEFEF}Kasper}}$ ㅤ/ㅤ<i> Mike </i> <br> 18 ♡ㅤhe⠀⸝⠀They ⸝ <br> aroace mlm ⎯⎯⎯ Yumeshipper <br> <br> <img src="https://github.com/user-attachments/assets/b9d55319-bc7e-46c8-8cab-8112d10df835" height="40" width="240"/>   <br>${\textsf{\color{#FBEFEF}because when it comes down to it, your life is your own.
+}}$
+<br>
+
+<br>
+<img src="https://github.com/user-attachments/assets/b87183b8-30fb-4f26-8971-92eeefa7962f" align="right" width="35%"> <p align="center">   ${\textsf{\color{#FBEFEF}But if I have to conform to what society wants me to be}}$ <br> <img src="https://github.com/user-attachments/assets/b9d55319-bc7e-46c8-8cab-8112d10df835" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#FBEFEF}dni.}}$ ღ </summary> racists,ㅤProshippers + darkshippers, <br> zoos,ㅤ<br>pedos,ㅤabelists. <br> ${\textsf{\color{#FBEFEF}i block and hide freely.}}$ <br> </details> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#FBEFEF}interests.}}$ㅤღ </summary> ${\textsf{\color{#FBEFEF}gachiakuta, blue period, dungeon meshi are my mains rn}}$ <br> homestuck,ㅤdandy's world,ㅤRamshackle, <br> hazbin hotel,ㅤCRK,ㅤhamilton,ㅤsouth park </details> <p align="center"> <img src="https://github.com/user-attachments/assets/b9d55319-bc7e-46c8-8cab-8112d10df835" height="40" width="240"/> <p align="center"> ${\textsf{\color{#FBEFEF}then I'd rather die.}}$
+
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/784a563f-86ef-41ab-8676-0446c83653af" width="800" height="800%""/>
+</p>
